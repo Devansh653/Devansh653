@@ -15,7 +15,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Github.
 - 💬 Ask me about Excel,Tally ERP-9
 - 📫 How to reach me: https://www.instagram.com/devansh_tripathi_289?igsh=ZTF0eGprb3d1cDM0
--                       Mail:tripathidevansh2006@gmail.com
 - 😄 Pronouns: Pandit Jii
-- ⚡ Fun fact: 
 
